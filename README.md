@@ -8,4 +8,4 @@
 - ⚡ Fun fact: I love solving real-world problems through code
 
 📫 Connect with me:  
-[LinkedIn](https://www.linkedin.com/in/jahnavi-pandey/).  
+[LinkedIn](https://www.linkedin.com/in/jahnavi-pandey-043714228/).  
